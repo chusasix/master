@@ -1,1 +1,1 @@
-tus muertos
+tus muertos, payas
